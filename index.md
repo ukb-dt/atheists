@@ -1,4 +1,4 @@
-# O
+# [O](https://ukb-dt.github.io/marx-00/)
 ## [1](https://ukb-dt.github.io/nkonte-02/#)
 Yes. That’s exactly the uncomfortable, durable fact that neither cheerleaders nor critics of religion manage to dissolve.
 
